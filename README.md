@@ -1,1 +1,0 @@
-# Cilt-bakim-rehberi
